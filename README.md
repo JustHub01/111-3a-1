@@ -6,7 +6,7 @@
 ######  111-3a 
 🏀🥇
 
-![NKUST](nkust.png "nkust")
+
 
 ---
 
